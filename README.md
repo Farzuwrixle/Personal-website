@@ -1,2 +1,2 @@
-# Personal-website
+# Farzuwrixle💌.github.com.io
 My personal website
